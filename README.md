@@ -1,0 +1,2 @@
+# premium-fiddle-making-001-fiddle-making-appalachian-st
+Tired of fiddle plans that leave you with a silent, lifeless instrument? This workshop bridges the gap between woodworking and the soulful sound of Appalachian music.  This workshop solves the core problem of making a fiddle that not only looks authentic but sings with the rich, earthy tone of the Appalachian tradition. By combining time-honored st
